@@ -9,7 +9,7 @@
 
 - 🤔 I’m looking for help with **Minecraft Hack client/ Utility mod for anarchy-related servers(Minecarft)**
 
-- 📫 How to reach me: **Pistonmaster#7069**
+- 📫 How to reach me: **Trin#7069**
 
 - ⚡ Fun fact: **Loving Minecraft 💖**
 
